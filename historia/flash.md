@@ -1,3 +1,0 @@
-# Historia de flash
-
-El tercer Flash fue introducido fue Wally West, presentado en The Flash Vol. 1 #110 (enero de 1960) como Kid Flash. West, sobrino de Allen por matrimonio, obtuvo los poderes de Flash a través de un accidente idéntico al de Allen. Adoptando la identidad de Kid Flash, mantuvo su membresía en Los Jóvenes Titanes por años. Después de la muerte de Allen, West adoptó la identidad Flash en Crisis on Infinite Earths #12 y recibió su propia serie, comenzando con The Flash Vol. 2 #1 en 1987.1​ Muchos títulos comenzaron con el eslogan: "Mi nombre es Wally West. Soy el hombre vivo más rápido".
